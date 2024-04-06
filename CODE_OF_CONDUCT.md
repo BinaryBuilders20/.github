@@ -38,8 +38,7 @@ Members who engage in behavior that violates this Code of Conduct may be subject
 
 If you have any questions, concerns, or feedback regarding this Code of Conduct, please don't hesitate to contact us:
 
-- [Your Email]
-- [Your Friend's Email]
+binarybuilders20324@gmail.com
 
 ## Attribution
 
